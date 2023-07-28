@@ -66,6 +66,12 @@ Books:
 >
 >His passing might have gone unnoticed, but for the imposition of a youth too stubborn to accept his refusal to take an apprentice. With a new student comes new hope, and that hope has caused old powers to stir again. That the world will change is inevitable, but the shape of the future is anything but certain.
 
+#### [Artemis Fowl](https://www.goodreads.com/series/42742-artemis-fowl) (2001) _by [Eoin Colfer](https://en.wikipedia.org/wiki/Eoin_Colfer)_ [3.8] :fire:
+
+What happens when someone has too much money and time on their hands, and fairies aren't as careful as they should be? They don't take what happens laying down, instead they unleash both a standard scary fae and something a bit more.   - [@depperm](https://github.com/depperm)
+
+> Twelve-year-old Artemis Fowl is a millionaire, a genius, and above all, a criminal mastermind. But even Artemis doesn't know what he's taken on when he kidnaps a fairy, Captain Holly Short of the LEPrecon Unit. These aren't the fairies of bedtime stories—they're dangerous! Full of unexpected twists and turns, Artemis Fowl is a riveting, magical adventure.
+
 #### [Black Company](https://www.goodreads.com/book/show/140671) (1984) _by [Glen Cook](https://en.wikipedia.org/wiki/Glen_Cook)_ [4]
 
 This is my favorite dark fantasy series and the first book is awesome. These are written so differently than any fantasy-esque book I've ever read. It is difficult to describe, but as a veteran, it just feels like you're reading a fantasy book written by a former soldier that's been there, crude jokes, blood and all. I highly recommend this. - [@PeerRails](https://github.com/PeerRails)
